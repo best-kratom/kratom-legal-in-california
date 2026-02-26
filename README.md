@@ -48,7 +48,7 @@ Natural kratom leaf contains mitragynine as its main alkaloid, with only trace a
 ### What Are 7-OH Products?
 Concentrated 7-OH products are manufactured to amplify the most potent compound in kratom. These products can be dramatically stronger than traditional leaf, which is why they have drawn the most concern from health agencies. The FDA itself has actually drawn a line here at the federal level, stating that its enforcement focus is on concentrated 7-OH products and that it is not targeting natural kratom leaf.
 
-Unfortunately, California's CDPH has not adopted that same distinction, which is why the current situation feels heavy-handed to many kratom consumers who use simple leaf powder or tea. Therefore, it is advisable to purchase [kratom products](https://github.com/best-kratom/best-kratom-products) from vendors such as [Happy Go Leafy](behappygoleafy.com), which offer products that do not contain 7-OH.
+Unfortunately, California's CDPH has not adopted that same distinction, which is why the current situation feels heavy-handed to many kratom consumers who use simple leaf powder or tea. Therefore, it is advisable to purchase [kratom products](https://github.com/best-kratom/best-kratom-products) from vendors such as [Happy Go Leafy](https://behappygoleafy.com/), which offer products that do not contain 7-OH.
 
 ## AB 1088: Regulation Could Be Coming Soon
 ### What the Bill Would Do
